@@ -15,4 +15,8 @@
 
 [checklist #7](https://drive.google.com/file/d/1GpqlIeIe0l7qV1niPxgubW9yCQ7t3UEr/view?usp=sharing)
 
-## Charity hospital (coming soon...)
+## Charity hospital
+
+[checklist #8](https://drive.google.com/file/d/1ona0WBDAxR4xyKfzeJeYL38tbRxpxGrO/view?usp=sharing)
+
+[checklist #9](https://drive.google.com/file/d/1fHXtjH-H49uoB-xNuiFxifcMn7__OcmX/view?usp=sharing)
